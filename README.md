@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Alice Fernandes 😁
+## Alice Fernandes 
 
  <div>
    <a href="https://github.com/aliceklfs">
